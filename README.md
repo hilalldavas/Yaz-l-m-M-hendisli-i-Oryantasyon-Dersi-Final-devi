@@ -1,0 +1,1 @@
+# Yaz-l-m-M-hendisli-i-Oryantasyon-Dersi-Final-devi
